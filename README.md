@@ -14,7 +14,7 @@
 
 ###
 
-<p align="center">✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦<br><br>❛ quill / theodore ❜<br><br>greyromantic aroace<br><br>enby┊audhd + bpd ﹗﹗<br><br>✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦</p>
+<p align="center">✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦<br><br>❛ quill / theodore ❜<br><br>greyaromantic aroace<br><br>enby┊audhd + bpd ﹗﹗<br><br>✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦</p>
 
 ###
 
