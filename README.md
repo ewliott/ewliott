@@ -18,10 +18,6 @@
 
 ###
 
-<p align="center">୨  ꒰ check socials for more ꒱  ୧</p>
-
-###
-
 <div align="center">
   <img height="70" src="https://64.media.tumblr.com/fe1f0bc06d781091ad7f52d04a3c5974/7080f390471733cb-32/s2048x3072/68ced0dcd80b3123209978b054ae81f16d4522c7.pnj"  />
 </div>
