@@ -23,7 +23,3 @@
 </div>
 
 ###
-
-<p align="left">⟡ credits ；abbyflowertale ┊</p>
-
-###
